@@ -1,0 +1,1 @@
+This is a perfect page to read all about the single text of "Destroy the world".
